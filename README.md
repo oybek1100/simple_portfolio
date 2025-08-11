@@ -1,1 +1,1 @@
-xoshimboyev.uz
+https://xoshimboyev.uz/
